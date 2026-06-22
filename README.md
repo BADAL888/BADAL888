@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀 Developer building scalable & efficient solutions<br>💻 Clean code | Smart systems | Real impact<br>🤖 Leveraging AI to work faster & think smarter<br>🌱 Always learning, always evolving<br>🤝 Open-source lover & team player<br>⚡I love using my skills to solve real-world problems and turn<br>       ideas into impactful solutions.<br> 
+🚀 Developer building scalable & efficient solutions<br>💻 Clean code | Smart systems | Real impact<br>🤖 Leveraging AI to work faster & think smarter<br>🌱 Always learning, always evolving<br>⚡I love using my skills to solve real-world problems and turn<br>       ideas into impactful solutions.<br> 
 
 
 ## 🌐 Socials:
